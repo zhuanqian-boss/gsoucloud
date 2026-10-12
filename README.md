@@ -1,6 +1,6 @@
 # GsouCloud机场官网链接
 
-最新官网：[gsourecommend.pics](https://ml.yfqz1.net/register?code=o60AZIA3)
+最新官网：[gsourecommend.pics](https://yfynez01.net/register?code=o60AZIA3)
 
 ## 服务概述
 
